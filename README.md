@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AndreaCappa
 - 👀 I’m interested in working in VideoGames
-- 🌱 I’m currently learning 2D Art for Videogames
+- 🌱 I’m an experienced 2D Artist - Concept Artist
 - 💞️ I’m looking to collaborate on videogames
 - 📫 How to reach me andreacappa1991@gmail.com
 
